@@ -1,8 +1,11 @@
 #Worship-Songs
 This are compiled songs for Sunday worship mainly for presentation software such as EasyWorship, OpenLP and others.
 
-##How to contribute
-You can help by adding new lyrics or correcting spelling mistakes that are made in the repository.
+I will keep adding songs as we need them in the church.
 
-#Please feel free to clone, download or copy the repo for your ministry :)
-The sole purpose of this repo is to save you from having to find lyrics online.
+##How to contribute
+You can help by adding new lyrics or correcting spelling mistakes that are made it in the repository.
+Pull requests are welcome, though I recommend creating a new branch for any significant changes you make before requesting for a pull.
+
+#Please feel free to clone, download or copy the repo for your ministry 😊
+The sole purpose of this repo is to save you some time from having to find song lyrics online again (hopefully).
