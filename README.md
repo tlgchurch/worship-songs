@@ -1,8 +1,11 @@
 #Worship-Songs
-Worship songs for Sunday mainly for presentation software such as EasyWorship, OpenElec and many more.
+This are compiled songs for Sunday worship mainly for presentation software such as EasyWorship, OpenLP and others.
+
+I will keep adding songs as we need them in the church.
 
 ##How to contribute
-You can help us out by adding new lyrics or correcting spelling mistakes that made it in the repository.
+You can help by adding new lyrics or correcting spelling mistakes that are made it in the repository.
+Pull requests are welcome, though I recommend creating a new branch for any significant changes you make before requesting for a pull.
 
-
-The Living God Church
+#Please feel free to clone, download or copy the repo for your ministry 😊
+The sole purpose of this repo is to save you some time from having to find song lyrics online again (hopefully).
