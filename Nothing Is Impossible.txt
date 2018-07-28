@@ -1,4 +1,4 @@
-Chorus
+CHORUS
 Through You I can do anything
 I can do all things
 'Cause it's You who gives me strength
@@ -8,13 +8,13 @@ Strongholds are broken
 I am living by faith
 Nothing is impossible
 
-Verse 1
+VERSE 1
 I'm not gonna live by what I see
 I'm not gonna live by what I feel
 Deep down I know that You're here with me
 And I know that You can do anything
 
-Chorus
+CHORUS
 Through You I can do anything
 I can do all things
 'Cause it's You who gives me strength
@@ -26,13 +26,13 @@ Nothing is impossible
 
 Nothing is impossible
 
-Verse 2
+VERSE 2
 I'm not gonna live by what I see
 I'm not gonna live by what I feel
 Deep down I know that You're here with me
 And I know that You can do anything
 
-Chorus
+CHORUS
 Through You I can do anything
 I can do all things
 'Cause it's You who gives me strength
@@ -44,12 +44,12 @@ Nothing is impossible
 
 Nothing is impossible
 
-Bridge (x4)
+BRIDGE (x4)
 I believe, I believe
 I believe, I believe in You
 
 
-Chorus
+CHORUS
 Through You I can do anything
 I can do all things
 'Cause it's You who gives me strength
@@ -59,6 +59,6 @@ Strongholds are broken
 I am living by faith
 Nothing is impossible
 
-Bridge (x2)
+BRIDGE (x2)
 I believe, I believe
 I believe, I believe in You

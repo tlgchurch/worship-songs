@@ -1,12 +1,12 @@
 What A Beautiful Name
 
-Verse 1
+VERSE 1
 You were the Word at the beginning
 One with God the Lord Most High
 Your hidden glory in creation
 Now revealed in You our Christ
 
-Chorus 1
+CHORUS 1
 What a beautiful Name it is
 What a beautiful Name it is
 The Name of Jesus Christ my King
@@ -15,13 +15,13 @@ Nothing compares to this
 What a beautiful Name it is
 The Name of Jesus
 
-Verse 2
+VERSE 2
 You didn’t want heaven without us
 So Jesus You brought heaven down
 My sin was great Your love was greater
 What could separate us now
 
-Chorus 2
+CHORUS 2
 What a wonderful Name it is
 What a wonderful Name it is
 The Name of Jesus Christ my King
@@ -32,7 +32,7 @@ The Name of Jesus
 What a wonderful Name it is
 The Name of Jesus
 
-Bridge
+BRIDGE
 Death could not hold You
 The veil tore before You
 You silence the boast of sin and grave
@@ -47,7 +47,7 @@ Yours is the kingdom
 Yours is the glory
 Yours is the Name above all names
 
-Chorus 3
+CHORUS 3
 What a powerful Name it is
 What a powerful Name it is
 The Name of Jesus Christ my King

@@ -1,4 +1,4 @@
-Chorus
+CHORUS
 I need You more,
 more than yesterday
 I need You more
@@ -8,7 +8,7 @@ Than ever before
 I need You Lord,
 I need You Lord
 
-Verse
+VERSE
 More than the air I breathe
 More than the song I sing
 More than the next heartbeat
@@ -16,7 +16,7 @@ More than anything, and Lord as time goes by
 I'll be by Your side
 Cause I never want to go back to my old life
 
-Chorus
+CHORUS
 I need You more,
 more than yesterday
 I need You more
@@ -26,7 +26,7 @@ Than ever before
 I need You Lord,
 I need You Lord
 
-Verse
+VERSE
 More than the air I breathe
 More than the song I sing
 More than the next heartbeat
@@ -34,7 +34,7 @@ More than anything, and Lord as time goes by
 I'll be by Your side
 Cause I never want to go back to my old life
 
-Chorus (2x)
+CHORUS (2x)
 I need You more,
 more than yesterday
 I need You more
@@ -44,7 +44,7 @@ Than ever before
 I need You Lord,
 I need You Lord
 
-Bridge(3x)
+BRIDGE(3x)
 We give You the highest praise
 
 BRIDGE (Ending)
