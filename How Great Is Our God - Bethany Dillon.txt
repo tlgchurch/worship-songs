@@ -1,5 +1,5 @@
 VERSE 1
-The splendour of the King, clothed in majesty
+The splendour of a King, clothed in majesty
 Let all the earth rejoice
 All the earth rejoice
 
@@ -30,13 +30,13 @@ How great is our God, sing with me
 How great is our God, and all will see
 How great, how great is our God
 
-BRIDGE (2x) (OPTION 1)
+BRIDGE (OPTION 1) (2x)
 Name above all names
 Worthy of our praise
 My heart will sing
 How great is our God
 
-BRIDGE (2x) (OPTION 2)
+BRIDGE (OPTION 2) (2x)
 You're the name above all names
 You are worthy of our praise
 And my heart will sing
@@ -47,6 +47,6 @@ How great is our God, sing with me
 How great is our God, and all will see
 How great, how great is our God
 
-TAG
+TAG (OPTIONAL)
 Then sings my soul, my Saviour God, to Thee
 How great Thou art, how great Thou art
