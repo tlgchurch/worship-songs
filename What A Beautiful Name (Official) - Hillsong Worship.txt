@@ -30,7 +30,7 @@ The Name of Jesus
 What a wonderful Name it is
 The Name of Jesus
 
-BRIDGE
+BRIDGE 1
 Death could not hold You
 The veil tore before You
 You silence the boast of sin and grave
@@ -38,6 +38,7 @@ The heavens are roaring
 The praise of Your glory
 For You are raised to life again
 
+BRIDGE 2
 You have no rival
 You have no equal
 Now and forever God You reign
