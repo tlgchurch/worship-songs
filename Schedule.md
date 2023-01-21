@@ -1,13 +1,15 @@
-# Sunday Service 15 January 2023
+# Sunday Service 21 January 2023
 
-1. THE TIME HAS COME
-https://www.youtube.com/watch?v=9Rq-NJ-SfWw
+## Praise
+1 - No Other Name by Freddy Rodriguez
+https://youtu.be/LmCUqJvq-sk
 
-2. OUR GOD
-https://www.youtube.com/watch?v=C2QBdk1GhjQ
+2 - Glorious by BJ Putnam
+https://youtu.be/ay5gtHrY6oU
 
-3. AGNUS DEI w/ KING OF KINGS
-https://www.youtube.com/watch?v=yBp63773Cxc
+## Worship
+1 - Beautiful Saviour by Planetshakers
+https://youtu.be/saK6vStMQ8U
 
-4. HOLY FOREVER
-https://m.youtube.com/watch?v=EbMYye-2Yt8
+2 - What A Beautiful Name by Hillsong
+https://youtu.be/r5L6QlAH3L4
