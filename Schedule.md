@@ -1,15 +1,20 @@
-# Sunday Service 21 January 2023
+# Sunday Service 29 January 2023
 
-## Praise
-1 - No Other Name by Freddy Rodriguez
-https://youtu.be/LmCUqJvq-sk
+Rejoice medley
+This is the day that Lord has made (no key change)
+https://youtu.be/UbR01BubmaA
 
-2 - Glorious by BJ Putnam
-https://youtu.be/ay5gtHrY6oU
+I will rejoice (Chorus Only)
+https://youtu.be/nPlVJUGw3oI
 
-## Worship
-1 - Beautiful Saviour by Planetshakers
-https://youtu.be/saK6vStMQ8U
+Rejoice (Chorus Only)
+https://youtu.be/p8p3YkN2G98
 
-2 - What A Beautiful Name by Hillsong
-https://youtu.be/r5L6QlAH3L4
+Jesus is Alive
+https://youtu.be/cbAy0ts3H8k
+
+Waymaker
+https://youtu.be/cHoGEDQQ67o
+
+Gratitude
+https://youtu.be/keJal6ftePU
