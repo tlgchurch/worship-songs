@@ -1,20 +1,18 @@
-# Sunday Service 29 January 2023
+# Sunday Service 04 February 2023
 
-Rejoice medley
-This is the day that Lord has made (no key change)
-https://youtu.be/UbR01BubmaA
+Highly favoured and anointed worship team
+These are our Praise and worship songs on Sunday
 
-I will rejoice (Chorus Only)
-https://youtu.be/nPlVJUGw3oI
+SING SING SING (E)
+https://m.youtube.com/watch?v=rE6_qpC_Zfw
 
-Rejoice (Chorus Only)
-https://youtu.be/p8p3YkN2G98
+ENDLESS LIGHT (C)
+https://www.youtube.com/watch?v=oLK2HOzZTOE
 
-Jesus is Alive
-https://youtu.be/cbAy0ts3H8k
+HOLY FOREVER (A)
+https://m.youtube.com/watch?v=EbMYye-2Yt8
 
-Waymaker
-https://youtu.be/cHoGEDQQ67o
+10,000 REASONS (E)
+https://m.youtube.com/watch?v=DXDGE_lRI0E
 
-Gratitude
-https://youtu.be/keJal6ftePU
+God bless you always
