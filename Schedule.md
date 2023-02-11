@@ -1,18 +1,13 @@
-# Sunday Service 04 February 2023
+# Sunday Service 11 February 2023
 
-Highly favoured and anointed worship team
-These are our Praise and worship songs on Sunday
+GREAT IN POWER
+https://youtu.be/fDU2ct_ykhA
 
-SING SING SING (E)
-https://m.youtube.com/watch?v=rE6_qpC_Zfw
+EVERYTHING THAT HAS BREATH (G)
+https://youtu.be/SdvHFLF8lNo
 
-ENDLESS LIGHT (C)
-https://www.youtube.com/watch?v=oLK2HOzZTOE
+HEART OF WORSHIP
+https://youtu.be/0XsB0ltXmRs
 
-HOLY FOREVER (A)
-https://m.youtube.com/watch?v=EbMYye-2Yt8
-
-10,000 REASONS (E)
-https://m.youtube.com/watch?v=DXDGE_lRI0E
-
-God bless you always
+HOW GREAT IS OUR GOD (G)
+https://youtu.be/NG7iYUZVG6Q
