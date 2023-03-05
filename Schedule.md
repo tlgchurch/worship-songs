@@ -1,16 +1,15 @@
-# Sunday Service 18th February 2023
+# Sunday Service 5th March 2023
 
-Nothing is Impossible  - A
-https://youtu.be/lbSPw7f3FxI
+Praise
+1 - Glory by Hillsong
+https://youtu.be/sf7KdRKCmOE
 
-Tribes - A
-https://youtu.be/8NtijaKu8i0
+2 - Our God by Chris Tomlin (faster tempo)
+https://youtu.be/eYx1M_n2US4
 
-Living God - C
-https://youtu.be/1-rMRLhEBsE
+Worship
+1 - This Is Our God by Hillsong
+https://youtu.be/fS-RLamCOt0
 
-Worthy of it All - C
-https://youtu.be/6EQM3I1s2yw
-
-Christ is enoguh
-https://youtu.be/teUxQpnhezY
+2 - How Great is Our God (start with Chorus)
+https://youtu.be/s8B0fOCN00U
