@@ -1,15 +1,13 @@
-# Sunday Service 5th March 2023
+# Sunday Service 12th March 2023
 
-Praise
-1 - Glory by Hillsong
-https://youtu.be/sf7KdRKCmOE
+Endless Light
+https://youtu.be/-1zU-fQv6Uc
 
-2 - Our God by Chris Tomlin (faster tempo)
-https://youtu.be/eYx1M_n2US4
+God Is Great
+https://youtu.be/CHY3SJ-YRr8
 
-Worship
-1 - This Is Our God by Hillsong
-https://youtu.be/fS-RLamCOt0
+This Is Our God
+https://youtu.be/g-RIWtmINOc
 
-2 - How Great is Our God (start with Chorus)
-https://youtu.be/s8B0fOCN00U
+Cornerstone
+https://youtu.be/Fl15U2ifYzo
