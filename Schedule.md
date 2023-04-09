@@ -1,13 +1,13 @@
-# Sunday Service 12th March 2023
+# Sunday Service 26th March 2023
 
-Endless Light
-https://youtu.be/-1zU-fQv6Uc
+GLORIOUS (D)
+https://m.youtube.com/watch?v=St_cSVnV2WM
 
-God Is Great
-https://youtu.be/CHY3SJ-YRr8
+GREAT IN POWER (C)
+https://m.youtube.com/watch?v=fDU2ct_ykhA
 
-This Is Our God
-https://youtu.be/g-RIWtmINOc
+HALLELUJAH (G)
+https://m.youtube.com/watch?v=3h5A3vw39Z4&list=OLAK5uy_k_AMf-XEtjP3l9Cd23lHIMq_3sbFMV_GA&index=6
 
-Cornerstone
-https://youtu.be/Fl15U2ifYzo
+HOLY FOREVER (G)
+https://m.youtube.com/watch?v=EbMYye-2Yt8
